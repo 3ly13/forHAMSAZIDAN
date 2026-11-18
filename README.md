@@ -1,2 +1,0 @@
-# forHAMSAZIDAN
-i love you
